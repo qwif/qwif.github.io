@@ -1,2 +1,0 @@
-# qwif.github.io
-Love
